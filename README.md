@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ARGONOT
+- 👀 Don't you think computers are very interesting ?
+- 🌱 I am working in the field of artificial intelligence.
+- 💞️ I loveeeee the internet.
